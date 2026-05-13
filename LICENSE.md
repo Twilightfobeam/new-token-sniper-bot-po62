@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top new token sniper bot | dex-sniping + slippage-control, the #1 new token sniper bot. Includes dex-sniping and slippage-control for a faster and more
 
 
 
